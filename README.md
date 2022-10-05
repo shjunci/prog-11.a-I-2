@@ -1,0 +1,1 @@
+Mans pirmajs git projekts
